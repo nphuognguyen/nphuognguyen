@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nphuognguyen
-- 👀 I’m interested in facebook
+- 👀 I’m interested in healthy care, learn more language...
 - 🌱 I’m currently learning chinese language
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on skype
